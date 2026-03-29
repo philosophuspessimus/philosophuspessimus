@@ -3,7 +3,7 @@
 - 🥽🧪🔬 I’m currently learning about DNA, Protein Folding, Spermatogenesis, Viruses, etc.
 - 👯 I’m looking to collaborate on synthetic virology!
 - 🤔 I’m looking for help with building a strong foundation in Biology, from a computational systems perspective.
-- 💬 Ask me about Metaphysics, Ethics, Existential Philosophy, etc.
+- 💬 Ask me about Metaphysics, Ethics, Existential Philosophy, Math, AI, Computation, etc.
 - 📫 How to reach me: dannykills@proton.me
 - 🧔‍♂️ Pronouns: He/Him
 
